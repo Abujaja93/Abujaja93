@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Abujaja93
+- 👋 Hi, I’m Afishata Mohammed Abujaja (PhD)
 - 👀 I’m interested in research related to Gender and agriculture development
 - 🌱 I’m currently learning alot about technology on AI, Big Data, Machine Learning etc
 - 💞️ I’m looking to collaborate on research related to gender and agriculture innnovations.
